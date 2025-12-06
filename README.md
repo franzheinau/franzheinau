@@ -19,7 +19,7 @@
 
 ###
 
-<p align="left">"Setiap orang sedang berjuang dalam hidupnya, dan kamu tidak pernah tahu seberapa kuat seseorang sampai satu-satunya pilihan yang ia miliki hanyalah tetap kuat. Jadi jika kamu sedang merasa lelah, istirahatlah, bukan menyerah. Kamu sudah sejauh ini, jangan berhenti sekarang."</p>
+<p align="left">"Gass AJALAHH ."</p>
 
 ###
 
